@@ -1,1 +1,0 @@
-opearting system
